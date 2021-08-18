@@ -1,0 +1,2 @@
+# denasetya.com
+safelink
